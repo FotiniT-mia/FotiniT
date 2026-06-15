@@ -50,6 +50,8 @@ Tο Χιονισμένο Βουνό της Συνεργασίας
 ---
 Μπορείτε να δείτε το βίντεο εδώ https://youtu.be/W6QA7llVevg
 
+Δείτε τη σελίδας μας https://openedtech.ellak.gr/robotics2026/mia-fora-ki-enan-kero-to-chionismeno-vouno/
+
 ---
 
 
